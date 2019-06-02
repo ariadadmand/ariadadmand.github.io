@@ -1,1 +1,0 @@
-# ariadadmand.github.io
